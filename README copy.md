@@ -1,1 +1,0 @@
-# up09-lab6-Isupov
